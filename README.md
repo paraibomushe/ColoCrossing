@@ -17,7 +17,8 @@
 
 ## ColoCrossing Promotional Code
 
-Use the following link to apply the latest promotional codes: [Click to view the latest promotions on the official website of ColoCrossing](https://cloud.colocrossing.com/aff.php?aff=556)
+Use the following link to apply the latest promotional codes: 
+> [Click to view the latest promotions on the official website of ColoCrossing](https://cloud.colocrossing.com/aff.php?aff=556)
 
 ## ColoCrossing Promotional Offer
 
